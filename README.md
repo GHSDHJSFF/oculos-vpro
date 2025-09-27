@@ -1,1 +1,1 @@
-Oculos no cash on delivery
+Oculos que só se paga na entrega
